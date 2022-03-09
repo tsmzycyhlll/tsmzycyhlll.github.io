@@ -1,2 +1,1 @@
-# tsmzycyhlll.github.io
-Lida Cheng's favorite places
+My favorite places to go to
